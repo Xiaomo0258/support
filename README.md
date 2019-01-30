@@ -1,5 +1,5 @@
-# 萌E购 - 技术支持
+# Spindle Online - Technical support
 
-## 联系邮箱：zhensha713263464@yeah.net
+## Contact email：xqga69@163.com
 
-## 联系电话：+8618650963324
+## Contact phone number：+8613367969473
